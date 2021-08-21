@@ -1,2 +1,0 @@
-- Roy Coya here
-- Just a traveler, reading and learning everything but speak and comment nothing
